@@ -1,3 +1,5 @@
+![rxhmadi logo](https://raw.githubusercontent.com/xeiptankuser/redirect/refs/heads/main/20211101_100152.png)
+
 # Mengenal Rxhmadi: Seorang Kreator Digital yang Inspiratif
 
 Dalam dunia digital yang terus berkembang, banyak kreator yang berusaha untuk menonjolkan karya dan ide-ide inovatif mereka. Salah satu nama yang belakangan ini menarik perhatian adalah **rxhmadi**. Siapakah sebenarnya rxhmadi, dan apa yang membuatnya menjadi figur menarik di dunia digital? Artikel ini akan membahas lebih jauh tentang perjalanan dan kontribusi **rxhmadi** dalam ekosistem kreatif di Indonesia.
